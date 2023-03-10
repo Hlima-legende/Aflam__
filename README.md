@@ -1,2 +1,1 @@
-# Defintion & Mode D'emploi
-<p> 10 étapes pour sensibiliser vos employés à la sécurité informatique  Aujourd’hui centrales dans de nombreuses entreprises, les nouvelles technologies engendrent de nouveaux risques : il est donc essentiel de sensibiliser vos employés à la cybersécurité. Pour vous aider, nous vous proposons un plan d’action composé de dix étapes. 1 – Identifiez les différents types de.. </p>
+lilleri yamma ..lillirI Yamma .lilir Hey
